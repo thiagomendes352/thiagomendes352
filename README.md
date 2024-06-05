@@ -9,3 +9,5 @@ meu nome é Thiago Mendes
 ### caso queira entrar em contato comigo
 
 00001114673912sp@al.educacao.sp.gov.br
+
+![](https://tenor.com/pt-BR/view/hamstergroovin-gif-17164382879984818689)
